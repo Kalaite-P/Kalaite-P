@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **kalaitetumanka@gmail.com**
 
-- ⚡ Fun fact **I am a first and passionate learner**
+- ⚡ Fun fact **I love coffee**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
