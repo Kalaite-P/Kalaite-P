@@ -10,7 +10,7 @@
 
 - 🌱 I’m currently learning **Python**
 
-- 📫 How to reach me **kalaitetumanka@gmail.com**
+- 📫 How to reach me **kalaitepeninah@gmail.com**
 
 - ⚡ Fun fact **I love coffee**
 
